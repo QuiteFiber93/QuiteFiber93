@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @QuiteFiber93
-- 👀 I’m interested in ,agic. music, and aerospace engineering
+- 👀 I’m interested in magic. music, and aerospace engineering
 - 🌱 I’m currently learning aerospace engineering
 
 <!---
